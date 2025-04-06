@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sakinahumaidi19
+- 👋 Hi, I’m Sakinah
 - 👀 I’m interested in traveling and diving
 - 🌱 I’m currently learning information system 
 - 💞️ I’m looking to collaborate on university 
